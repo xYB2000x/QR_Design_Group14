@@ -1,1 +1,0 @@
-# QR_Design_Group14
